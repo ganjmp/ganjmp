@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Tea is essentially boiled herbs. So why is it considered a drink and not soup? 🤔
+
+These are the things that run through my mind on a minute-by-minute basis. I think it's time for me to start meditation. I heard it's good for sharpening attention, and right now, mine is a dull butter knife.
+I'm currently learning coding through school and some random side projects. Coding is cool because I see it like being a wizard 🧙‍♂️. You cast some spells with the right syntax and some magic happens. You could say my ultimate goal is to be a Gandalf some sort. It would be nice to cast a spell that folds my laundry for me. Or does AI do that already? I can't keep track. Maybe I can write code that folds virtual laundry?
+And there you have it folks. There's a quick snippet on what a conversation with me would be like. Please feel free to reach out. 👌
